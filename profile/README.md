@@ -28,4 +28,4 @@ Our mission with Hyprverse is to create a one-stop hub for all my projects, maki
 We're excited about the journey ahead and look forward to achieving these goals with your support!
 
 ## Socials
-Comming soon
+[Hyprverse Discord](https://discord.gg/8JpCpUrf3p)
